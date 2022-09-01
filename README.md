@@ -1,5 +1,7 @@
 ### Hi! i'm one of the future geophysicist in this world✨
 
+<img width="50%" height="auto" src="https://postimg.cc/phPPGhF1"/></a>
+
 <!--
 **vinsaaa/vinsaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
