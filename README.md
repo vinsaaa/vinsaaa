@@ -1,6 +1,6 @@
 ### Hi! i'm one of the future geophysicist in this world✨
 
-<img width="50%" height="auto" src="https://postimg.cc/phPPGhF1"/></a>
+<img width="50%" height="auto" src="https://i.postimg.cc/9M7zfyFV/2641048.gif" height="100px"/></a>
 
 <!--
 **vinsaaa/vinsaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
