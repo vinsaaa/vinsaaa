@@ -1,7 +1,9 @@
-### <p align="center"> Hi! i'm one of the future geophysicist in this world✨</p>
+#### <p align="center"> Hi! i'm one of the future geophysicist in this world✨</p>
 
-<p align="center"> <img width="50%" height="auto" src="https://i.postimg.cc/9M7zfyFV/2641048.gif" height="100px"/></a> </p>
+<p align="center"> <img width="50%" height="auto" src="https://i.postimg.cc/SxmXyh4H/giphy.gif" height="100px"/></a> </p>
 
+U can call me Vinsa, not by any other nickname. 
+Now I'm a sophomore at Gadjah Mada University, but I'm still full of ngang ngong😶‍🌫️
 <!--
 **vinsaaa/vinsaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
